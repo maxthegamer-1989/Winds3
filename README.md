@@ -220,4 +220,4 @@ WinDS3 is offered as a full free version with all features and updates included,
 Don't miss out on the chance to elevate your gaming with WinDS3! Download now and enjoy the full benefits of your PS3 controller on your PC.
 
 ---
-**Last updated:** 2026-09-18 17:01:28 UTC
+**Last updated:** 2026-09-18 20:47:13 UTC
